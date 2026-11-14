@@ -4,6 +4,8 @@
 
 By [Haedo Labs](https://haedolabs.com)™.
 
+From the record to the release.
+
 In the works.
 
 <p>
