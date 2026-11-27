@@ -2,7 +2,7 @@
 
 # SimplyChord™
 
-By [Haedo Labs](https://haedolabs.com)™.
+[By Haedo Labs™.](https://haedolabs.com)
 
 From the record to the release.
 
